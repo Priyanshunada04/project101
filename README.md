@@ -1,6 +1,6 @@
 # Dhanlaxmi Meta Impex LLP — Official Website
 
-**Live site:** https://dhanlaxmimetaimpexllc.com
+**Live site:** https://dhanlaxmimetaimpexllp.com
 
 Non-ferrous scrap metal importers and exporters based in Surat, Gujarat, India.
 
